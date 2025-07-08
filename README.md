@@ -10,4 +10,4 @@
 
 本专区汇集国产与欧美性爱内容，涵盖自拍、野外激情、免费黄页等多种类型资源。所有视频支持高清视频播放，适配多设备，画质流畅不卡顿。资源每日更新，保证观众随时获得最新最热的成人内容。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/chan20250708/chan5 ）</span>
